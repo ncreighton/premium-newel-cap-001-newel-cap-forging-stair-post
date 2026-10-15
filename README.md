@@ -1,0 +1,2 @@
+# premium-newel-cap-001-newel-cap-forging-stair-post
+Tired of losing track of custom newel cap forging specs? Stop resizing by guesswork and start forging with a system that keeps every measurement, heat treat step, and assembly note in one place.  This Notion template replaces scattered notebooks and sticky notes with a structured workspace for your newel cap forging and stair post project. You'll e
